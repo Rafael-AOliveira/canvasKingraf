@@ -1,1 +1,1 @@
-https://astonishing-squirrel-5dde0e.netlify.app
+https://startling-taiyaki-69768c.netlify.app
